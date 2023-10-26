@@ -1,4 +1,4 @@
 ## studying...✏️
 
-- BLOG
+- BLOG : 
 https://gggggeun.tistory.com/
